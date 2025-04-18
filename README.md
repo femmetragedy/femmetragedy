@@ -1,2 +1,4 @@
-shared system github, more to be added
-![koishi-hero-of-ice-fairy](https://github.com/user-attachments/assets/89d0ad0b-7c40-4ef1-80f8-6611dd50ad73)
+# about us.
+we are a system, we're not diagnosed yet :(<br/>
+
+![sayori](https://github.com/user-attachments/assets/7c5d2ffa-dcbb-4bcf-8728-ac1d2baffc3a)
