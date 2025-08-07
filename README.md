@@ -1,3 +1,4 @@
+![](tumblr_fafd3dfebdbe7c98f10acac185555ce1_596d4ec0_2048.png)
 # about us.
 system of 4, we're not diagnosed yet :(<br/>
 fictive-heavy.<br/>
